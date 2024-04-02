@@ -10,4 +10,4 @@ https://kotyopuwwwwww.github.io/my-pfp-ja/
 
 ## 製作者
 
-Kotyopuwwwwww
+せせらぎ君(旧Kotyopuwwwwww)
