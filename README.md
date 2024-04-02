@@ -5,8 +5,7 @@
 # これについて
 私のページ
 
-https://kotyopuwwwwww.github.io/my-pfp-ja/
-
+https://babblingkun.github.io/profile-ja/
 
 ## 製作者
 
