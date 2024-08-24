@@ -5,7 +5,7 @@
 # これについて
 私のページ
 
-https://babblingkun.github.io/profile-ja/
+https://www.babblingkun.gay/
 
 ## 製作者
 
